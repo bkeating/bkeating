@@ -2,4 +2,4 @@ I'd like to use this space to encourage you to keep a repo of your dwelling(s). 
 
 Buildings do indeed learn.
 
-It feels dumb at first. You wont feel encouraged whatsoever, but as the years pass it becomes foundational. You gain a stronger understanding of how time passes in a way I have yet to experience elsewhere.
+It feels dumb at first. You wont feel encouraged whatsoever, but as the years pass it becomes precious. You gain a stronger understanding of how time passes in a way I have yet to experience elsewhere.
